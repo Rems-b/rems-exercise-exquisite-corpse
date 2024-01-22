@@ -25,3 +25,8 @@ En cliquant frénétiquement, Upingu déclenche accidentellement une pluie de po
 Upingu, perplexe, se joint à la fête cosmique et se retrouve à jouer au cache-cache avec une licorne en tutu. Les étoiles applaudissent, et un extraterrestre propose des smoothies à saveur d'arc-en-ciel. La folie cosmique continue dans l'igloo d'Upingu.
 
 <img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.giphy.com%2Fmedia%2FO0oQygeklvnX2%2Fgiphy.gif&f=1&nofb=1&ipt=851de68f030c72975b6f4af8faaccaa5779db5b376751c3968a0e1f227158506&ipo=images"  width="200"/>
+
+
+Upingu déclenche une pluie de poissons virtuels, le chat spatial danse avec un pingouin holographique. Upingu se joint à la fête cosmique, joue au cache-cache avec une licorne en tutu. Les étoiles applaudissent, un extraterrestre propose des smoothies arc-en-ciel. La folie continue dans l'igloo d'Upingu. 🌌✨
+
+<src ims= "https://media3.giphy.com/media/CopnbzBdGWvA1W1qiF/giphy.gif?cid=ecf05e477lbhjq3z1qmhxfzi9ox8bcohzo7g8rvv570n62um&ep=v1_gifs_search&rid=giphy.gif&ct=g">
