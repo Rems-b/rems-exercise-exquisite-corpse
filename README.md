@@ -30,3 +30,7 @@ Upingu, perplexe, se joint à la fête cosmique et se retrouve à jouer au cache
 Upingu déclenche une pluie de poissons virtuels, le chat spatial danse avec un pingouin holographique. Upingu se joint à la fête cosmique, joue au cache-cache avec une licorne en tutu. Les étoiles applaudissent, un extraterrestre propose des smoothies arc-en-ciel. La folie continue dans l'igloo d'Upingu. 🌌✨
 
 <src ims= "https://media3.giphy.com/media/CopnbzBdGWvA1W1qiF/giphy.gif?cid=ecf05e477lbhjq3z1qmhxfzi9ox8bcohzo7g8rvv570n62um&ep=v1_gifs_search&rid=giphy.gif&ct=g">
+
+Upingu déclenche une pluie de poissons virtuels, le chat spatial danse avec un pingouin holographique. Upingu se joint à la fête cosmique, joue au cache-cache avec une licorne en tutu. Les étoiles applaudissent, un extraterrestre propose des smoothies arc-en-ciel. La folie continue dans l'igloo d'Upingu. 🌌✨
+
+<img src="https://media3.giphy.com/media/CopnbzBdGWvA1W1qiF/giphy.gif?cid=ecf05e477lbhjq3z1qmhxfzi9ox8bcohzo7g8rvv570n62um&ep=v1_gifs_search&rid=giphy.gif&ct=g">
